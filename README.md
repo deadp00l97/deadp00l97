@@ -1,6 +1,8 @@
 ### Hi there 👋 I'm Hasintha
 
-H.M.H.D. Premarathne  IT20006334  deadp00l97
+H.M.H.D. Premarathne<br>
+IT20006334<br>
+deadp00l97
 
 
 <!--
