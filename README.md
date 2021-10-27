@@ -1,7 +1,6 @@
 ### Hi there 👋 I'm Hasintha
 
 H.M.H.D. Premarathne<br>
-IT20006334<br>
 deadp00l97
 
 
